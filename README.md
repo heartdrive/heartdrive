@@ -7,13 +7,11 @@
 🌼⋅•⋅⊰∙∘♡∘∙⊱⋅•⋅🌼
   <br>
   <br>
-  heart, teddi, kasper & more! <sub>(you can even call me flowery if thats easiest...)</sub> ~ he/they/it + neos<br>
-  british (sorry) * achillean nonbinary ... 20 (24.08)<br>
-  everyones favourite computer + flower + lab experiment! <br><br>
-  proship/comship/darkship or whatever you call yourselves dni i dont like you<br> feel free to take inspo from my skins~! im very happy to help you if you need it too ... im just a whisper away 🌼<br>
-  i love talking to people! always feel free to interact. rp is also always on the table i think its so fun<br>
-  if youre nice to me and nice to others, ill be nice to you ... i match energys!<br>
-  read my links to learn more, unless you wanna talk to me and find out yourself! :-)c<br>
+ hi im heart + teddie, kasper and whatever my skin atm is. theres more too if ur brave. he/they pref but i also use neos <br>
+im a creepy-cute computer imp magical boy. scene, old web & midwest emo enthusiast <br>
+they call me roblox larry round these parts <br>
+i dont like proshippers im not going to talk to you <br>
+i ask that fans of thatmob/the verity series to PLEASE keep ur distance or at the very least iwec. dont talk to me about it i do NOT have nice things to say. alters are ok you cant help your source <br>
   <sub>as thanks for reading!~</sub>
   <br>
   <br>
