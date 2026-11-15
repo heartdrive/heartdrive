@@ -1,10 +1,10 @@
 <p align="center">
-  <img src=https://media.tenor.com/syHXVi0fYTIAAAAj/flowery-flowery-deltarune.gif>
+  <img src=https://64.media.tumblr.com/11372e731b3a8b454d1b3a6eb19560c1/99cb95be728d5c6d-50/s1280x1920/b7a66a79683782cb4848b4e63c82a97ffd977989.pnj width="200">
   <br>
   <br>
-  <sup>ain't it nice...?</sup>
+  <sup>i just wanna make the whole world smile.</sup>
   <br>
-🌼⋅•⋅⊰∙∘♡∘∙⊱⋅•⋅🌼
+... ` 🔨 , 
   <br>
   <br>
  hi im heart + teddie, kasper and whatever my skin atm is. theres more too if ur brave. he/they pref but i also use neos <br>
@@ -15,8 +15,8 @@ i ask that fans of thatmob/the verity series to PLEASE keep ur distance or at th
   <sub>as thanks for reading!~</sub>
   <br>
   <br>
-  🌼⋅•⋅⊰∙∘♡∘∙⊱⋅•⋅🌼
+  , 🔨 ` ...
   <br>
   <br>
-  <sup>a life forever for ... flowers! </sup><br>
+  <sup>i just wanna make the whole world dance.</sup><br>
 </p>
